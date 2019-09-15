@@ -1,5 +1,5 @@
 # Gruau spécial aux fruits
-Cette recette est bonne à faire en avance. Parfaite pour préparer tout les déjeuners de la semaine!
+Cette recette est bonne à faire en avance. Parfaite pour préparer tous les déjeuners de la semaine!
 ## Ingrédients (4 portions)
 ### Ingrédients secs:
  1. 250 ml de gruau à gros flocons
